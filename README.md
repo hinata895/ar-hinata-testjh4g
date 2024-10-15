@@ -1,1 +1,0 @@
-# ar-hinata-testjh4g
